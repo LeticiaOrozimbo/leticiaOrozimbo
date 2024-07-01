@@ -1,4 +1,4 @@
-### Olá, bem vindes! Me chamo Letícia Orozimbo👋
+### Olá! Me chamo Letícia Orozimbo👋
 
 - 😄 Pronouns ela/dela/she/her
 
